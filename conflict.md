@@ -1,6 +1,6 @@
 The best color is green
 
-The best tv show is ________
+The best tv show is friends
 
 The best muscial artist is ________
 
