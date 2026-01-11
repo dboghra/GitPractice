@@ -24,7 +24,7 @@ Deekshita Madhalam :
 
 Diya Kadakia : 
 
-Dreshta Boghra : 
+Dreshta Boghra : I used to sing the national anthem at a Mets game in Citi Field every year. 
 
 Ellie Melzter : 
 
